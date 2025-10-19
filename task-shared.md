@@ -1,5 +1,0 @@
-Ngọc trân
-
-hoàng khởi
-
-
